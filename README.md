@@ -6,6 +6,6 @@
 <table align=center> <tr>
       <th scope="col">Aviator Hack App</th>
       <th scope="col">17 / 09 / 2024</th>
-  <th scope="col"><a href='https://qt6ae.github.io/aviator/'>Download</th>
+  <th scope="col"><a href='https://link.fun88-india.com/fun88-app'>Download</th>
  </tr><table/>
 <h4 align=center>Available for Windows, iOS, and Android
