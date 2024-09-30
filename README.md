@@ -38,5 +38,5 @@ With these tools and strategies, you can navigate the Aviator game with more con
  </tr><table/>
 <h4 align=center>Available for Windows, iOS, and Android
 
-<h2>Conclusion</h2>h2>
+<h2>Conclusion</h2>
  It is a real game, designed with RNG technology to ensure fairness in its unpredictability. However, like all gambling games, it comes with risks. Players should approach it with caution, understanding that while there is potential for reward, there is also a significant risk of loss. The key is to play responsibly and be aware of the inherent risks involved.
