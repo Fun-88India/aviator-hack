@@ -33,7 +33,7 @@ With these tools and strategies, you can navigate the Aviator game with more con
 <h3 align=center>
 <table align=center> <tr>
       <th scope="col">Aviator Hack App</th>
-      <th scope="col">September 2024</th>
+      <th scope="col">October 2024</th>
   <th scope="col"><a href='https://link.fun88-india.com/fun88-app'>Download</th>
  </tr><table/>
 <h4 align=center>Available for Windows, iOS, and Android
